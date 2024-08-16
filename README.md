@@ -1,0 +1,1 @@
+# dekopinda-lima-puluh-kota
