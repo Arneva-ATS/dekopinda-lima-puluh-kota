@@ -1,1 +1,1 @@
-# dekopinda-lima-puluh-kota
+# dekopinda-karanganyar
